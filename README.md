@@ -16,4 +16,4 @@
 
 我们始终坚持为用户提供最纯净、舒适的观影环境，让每一位用户都能享受到优质的日本AV免费观看体验。期待您的访问与支持。
 
-<span style="display:none;">[Canonical link]( https://github.com/ribenyi1021/42598787 ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/riben54550/42598787 ）</span>
